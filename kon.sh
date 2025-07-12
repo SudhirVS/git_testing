@@ -1,5 +1,0 @@
-wegw
-wgr
-gw
-sgw
-
